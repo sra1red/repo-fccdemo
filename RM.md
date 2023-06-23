@@ -1,3 +1,3 @@
 # Demo
 
-Hope u r having Good day.
+Hope you are having Good day.
